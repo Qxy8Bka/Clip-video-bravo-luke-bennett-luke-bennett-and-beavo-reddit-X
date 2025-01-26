@@ -10,7 +10,7 @@ Muchos fanáticos intentan conocer el contenido y buscan respuestas sobre su ori
 
 Video de OliviaRoomano y Miiki León: filtracion de los creadores de contenido causa revuelo en Telegram
 
-¿Dónde ver el video filtrado de Ana Luiza? El video filtrado de Ana Luiza, con Miiky, está circulando ampliamente en plataformas de internet, dirigidas a la divulgación de contenido para adultos, así como también en plataforma de redes sociales, donde varios internautas han comenzado a publicar enlaces que supuestamente contienen el material.
+¿Dónde ver el video filtrado de Ana Luiza? El video filtrado de  Ana Luiza, con Miiky, está circulando ampliamente en plataformas de internet, dirigidas a la divulgación de contenido para adultos, así como también en plataforma de redes sociales, donde varios internautas han comenzado a publicar enlaces que supuestamente contienen el material.
 
 Usuarios en redes aseguran la existencia del metraje que se compartió por primera vez en redes como Telegram y X (anteriormente conocida como Twitter), donde varias cuentas anónimas comenzaron a difundirla rápidamente.
 
