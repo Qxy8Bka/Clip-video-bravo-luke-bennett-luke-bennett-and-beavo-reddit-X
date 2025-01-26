@@ -20,7 +20,7 @@ Recientemente, Ana Luiza ha estado en el centro de una controversia debido a acu
 
 Recientemente consulta como "OliviaRoomano y Miiki León", "video filtrado de Ana Luiza Telegram", "como ver el video filtrado de oliviaroomano de isla de las tentaciones", se han vuelto tendencia en múltiples plataformas sociales, principalmente en Telegram, esto con la intención de encontrar el clip íntimo de los creadores de contenido.
 
-Oliviaroomano, o también conocida como Ana Luiza, es una de las participantes más polémicas de la octava edición de Isla de las Tentaciones, donde pone a prueba las relaciones de parejas que se mudan a una villa en la Republica Dominicana.
+Oliviaroomano, o también conocida como Ana Luiza, es una de las   participantes más polémicas de la octava edición de Isla de las Tentaciones, donde pone a prueba las relaciones de parejas que se mudan a una villa en la Republica Dominicana.
 
 En los últimos días Oliva no ha estado extenta de polémicas y una de ellas es la reciente filtracion de un video comprometedor de la creadora de contenido donde se muestra en situaciones sexuales con el actor Miiki León.
 
